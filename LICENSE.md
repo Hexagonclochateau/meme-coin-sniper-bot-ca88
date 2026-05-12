@@ -1,4 +1,4 @@
-# 
+# Get the ultimate meme coin sniper bot with premium meme coin sniper bot | simulation-mode + honeypot-detection. Featuring simulation-mode and honeypot-detection, it's the best
 
 
 
